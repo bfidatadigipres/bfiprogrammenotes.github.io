@@ -38,32 +38,26 @@ Forty-seven years later, this film is a testimony to the greatness of Aretha Fra
 **Production notes (with thanks to Neon)**
 
 **[Credits](https://www2.bfi.org.uk/films-tv-people/5ce28f525419a)**<br>
-Amazing Grace, USA 2019, 88 mins<br>
-Realised and Produced by: Alan Elliott  
-\[Concert footage directed by\]: Sydney Pollack  
-Presented by: Neon  
-Produced in association with: Sundial Pictures  
-Executive Producers: Stefan Nowicki, Joey Carey, Alexandra Johnes  
-Producers: Alan Elliott, Joe Boyd, Rob Johnson,  
-Chiemi Karasawa, Spike Lee, Sabrina V. Owens, Jerry Wexler, Tirrell D. Whittley, Joseph Woolf  
-Co-producer: Stephanie Apt  
-Editor: Jeff Buchanan  
-Post Production Services and Supervision:  
-Final Cut USA, Inc  
-Colour and Balance: Rebecca Arce  
-Colourist: Kelly Reese  
-Art Direction and Titles: Mathieu Bitton  
+**Amazing Grace, USA 2019, 88 mins**<br>
+Realised and Produced by: Alan Elliott<br>
+\[Concert footage directed by\]: Sydney Pollack<br>
+Presented by: Neon<br>
+Produced in association with: Sundial Pictures<br>
+Executive Producers: Stefan Nowicki, Joey Carey, Alexandra Johnes<br>
+Producers: Alan Elliott, Joe Boyd, Rob Johnson, Chiemi Karasawa, Spike Lee, Sabrina V. Owens, Jerry Wexler, Tirrell D. Whittley, Joseph Woolf<br>
+Co-producer: Stephanie Apt<br>
+Editor: Jeff Buchanan<br>
+Post Production Services and Supervision: Final Cut USA, Inc<br>
+Colour and Balance: Rebecca Arce<br>
+Colourist: Kelly Reese<br>
+Art Direction and Titles: Mathieu Bitton<br>
 Music Mixer: Jimmy Douglass<br>
 Original album produced by: Aretha Franklin,<br>
 Arif Mardin, Jerry Wexler<br>
 Audio Project Managers: Bob Heiber,<br>
 Chris Reynolds, Ron Bonk, Kim Gott<br>
 Originally recorded live at: The New Temple Missionary Baptist Church, Los Angeles<br>
-Recording Engineers: Ray Thompson, Wally Heider<br>
-Special Thanks: Reverend William Barber II,<br>
-Ari Emanuel, Matt Farmer, Julie Huntsinger,<br>
-Phil Jackson, Tom Luddy, Sydney Pollack,<br>
-Peter Sellars<br>
+Recording Engineers: Ray Thompson, Wally Heider, Special Thanks: Reverend William Barber II, Ari Emanuel, Matt Farmer, Julie Huntsinger, Phil Jackson, Tom Luddy, Sydney Pollack, Peter Sellars
 With:<br>
 Aretha Franklin<br>
 Rev. James Cleveland<br>
