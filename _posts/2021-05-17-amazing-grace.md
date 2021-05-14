@@ -52,113 +52,112 @@ Final Cut USA, Inc
 Colour and Balance: Rebecca Arce  
 Colourist: Kelly Reese  
 Art Direction and Titles: Mathieu Bitton  
-Music Mixer: Jimmy Douglass
-Original album produced by: Aretha Franklin,
-Arif Mardin, Jerry Wexler
-Audio Project Managers: Bob Heiber, 
-Chris Reynolds, Ron Bonk, Kim Gott
-Originally recorded live at: The New Temple Missionary Baptist Church, Los Angeles
-Recording Engineers: Ray Thompson, Wally Heider
-Special Thanks: Reverend William Barber II, 
-Ari Emanuel, Matt Farmer, Julie Huntsinger, 
-Phil Jackson, Tom Luddy, Sydney Pollack, 
-Peter Sellars
-With:
-Aretha Franklin
-Rev. James Cleveland
-Rev. C.L. Franklin
-Alexander Hamilton (choir director)
-Cornell Dupree (guitar)
-Kenny Luper (organ)
-Poncho Morales (percussion)
-Bernard Purdie (drums)
-Chuck Rainey (bass)
-Christine Adams
-Alonzo Atkins
-Lucy Ayers
-James A. Broofield
-Eugene Bryant
-Syndrul Drahe
-Mary Ann Hall
-Margerie Luper
-Charles May
-Ethel Ruth Mcisaac
-Odessa L. Mccastle
-Stanley B. Miller
-Linda Jean Ovenland
-Rashi Park	
-
-The Southern California Community Choir:
-Donna J. Hammond
-Darryl Hardy
-Betty Hollins
-Josephine Howard
-Sherman James
-Dolores Jones
-Johannie Pearl Knox
-Linda J. Payton
-Diane M. Ratcliff
-Gilbert Stanley
-Annette May Thomas
-Bobby Washington
-Aundie Wodson
-Barbara Ann Wilson
-USA 2019
-88 mins
-
-The Film Song List
-Night 1:
-‘On Our Way’
-‘Wholy Holy’
-‘What a Friend We Have In Jesus’
-‘How I Got Over’
-‘Precious Memories’
-‘You’ve Got A Friend’
-‘Precious Lord Take My Hand’
-‘Amazing Grace’
-‘My Sweet Lord’ (Instrumental)
-
-Night 2:
-‘Mary Don’t You Weep’
-‘Climbing Higher Mountains’
-‘Old Landmark’
-‘Never Grow Old’
-‘Old Landmark’ (End Credits)
-
-**HER VOICE  BLACK WOMEN FROM THE SPOTLIGHT TO THE SCREEN**
-
-Amazing Grace 
-Mon 17 May 18:10; Sat 29 May 15:15; 
-Tue 8 Jun 18:10
-Whitney: Can I Be Me
-Tue 18 May 20:50; Sat 26 Jun 18:10
-Siren of the Tropics (La sirène des tropiques)
-Wed 19 May 18:10; Sat 5 Jun 12:20
-Stormy Weather
-Wed 19 May 20:40; Sat 5 Jun 16:00
-Dreamgirls
-Sat 22 May 17:50; Wed 23 Jun 20:30
-Ella Fitzgerald: Just One of Those Things
-Mon 24 May 18:10; Sat 19 Jun 15:20
-…But Then, She’s Betty Carter
-Sat 29 May 12:10; Mon 7 Jun 18:00
-Sparkle
-Sun 30 May 18:40; Thu 10 Jun 20:35
-Mavis!
-Mon 31 May 16:10; Thu 17 Jun 20:40
-Billie
-Wed 2 Jun 18:00; Tue 15 Jun 20:40
-What’s Love Got to Do with It
-Fri 4 Jun 18:00; Sat 26 Jun 20:45
-Twenty Feet from Stardom
-Fri 4 Jun 20:45; Thu 10 Jun 18:20
-The Wiz
-Sun 6 Jun 12:20; Fri 18 Jun 17:45
-
-Celebrating films starring and directed by 
-Black talent and more
-
-**BECOME A BFI MEMBER** 
-Enjoy a great package of film benefits 
-including priority booking at BFI Southbank 
-and BFI Festivals. Join today at bfi.org.uk/join
+Music Mixer: Jimmy Douglass<br>
+Original album produced by: Aretha Franklin,<br>
+Arif Mardin, Jerry Wexler<br>
+Audio Project Managers: Bob Heiber,<br>
+Chris Reynolds, Ron Bonk, Kim Gott<br>
+Originally recorded live at: The New Temple Missionary Baptist Church, Los Angeles<br>
+Recording Engineers: Ray Thompson, Wally Heider<br>
+Special Thanks: Reverend William Barber II,<br>
+Ari Emanuel, Matt Farmer, Julie Huntsinger,<br>
+Phil Jackson, Tom Luddy, Sydney Pollack,<br>
+Peter Sellars<br>
+With:<br>
+Aretha Franklin<br>
+Rev. James Cleveland<br>
+Rev. C.L. Franklin<br>
+Alexander Hamilton (choir director)<br>
+Cornell Dupree (guitar)<br>
+Kenny Luper (organ)<br>
+Poncho Morales (percussion)<br>
+Bernard Purdie (drums)<br>
+Chuck Rainey (bass)<br>
+Christine Adams<br>
+Alonzo Atkins<br>
+Lucy Ayers<br>
+James A. Broofield<br>
+Eugene Bryant<br>
+Syndrul Drahe<br>
+Mary Ann Hall<br>
+Margerie Luper<br>
+Charles May<br>
+Ethel Ruth Mcisaac<br>
+Odessa L. Mccastle<br>
+Stanley B. Miller<br>
+Linda Jean Ovenland<br>
+Rashi Park<br>
+<br>
+**The Southern California Community Choir:**<br>
+Donna J. Hammond<br>
+Darryl Hardy<br>
+Betty Hollins<br>
+Josephine Howard<br>
+Sherman James<br>
+Dolores Jones<br>
+Johannie Pearl Knox<br>
+Linda J. Payton<br>
+Diane M. Ratcliff<br>
+Gilbert Stanley<br>
+Annette May Thomas<br>
+Bobby Washington<br>
+Aundie Wodson<br>
+Barbara Ann Wilson<br>
+**USA 2019<br>
+88 mins**<br>
+<br>
+**The Film Song List**<br>
+Night 1:<br>
+‘On Our Way’<br>
+‘Wholy Holy’<br>
+‘What a Friend We Have In Jesus’<br>
+‘How I Got Over’<br>
+‘Precious Memories’<br>
+‘You’ve Got A Friend’<br>
+‘Precious Lord Take My Hand’<br>
+‘Amazing Grace’<br>
+‘My Sweet Lord’ (Instrumental)<br>
+<br>
+Night 2:<br>
+‘Mary Don’t You Weep’<br>
+‘Climbing Higher Mountains’<br>
+‘Old Landmark’<br>
+‘Never Grow Old’<br>
+‘Old Landmark’ (End Credits)<br>
+<br>
+**HER VOICE  BLACK WOMEN FROM THE SPOTLIGHT TO THE SCREEN**<br>
+<br>
+Amazing Grace <br>
+Mon 17 May 18:10; Sat 29 May 15:15; Tue 8 Jun 18:10
+Whitney: Can I Be Me<br>
+Tue 18 May 20:50; Sat 26 Jun 18:10<br>
+Siren of the Tropics (La sirène des tropiques)<br>
+Wed 19 May 18:10; Sat 5 Jun 12:20<br>
+Stormy Weather<br>
+Wed 19 May 20:40; Sat 5 Jun 16:00<br>
+Dreamgirls<br>
+Sat 22 May 17:50; Wed 23 Jun 20:30<br>
+Ella Fitzgerald: Just One of Those Things<br>
+Mon 24 May 18:10; Sat 19 Jun 15:20<br>
+…But Then, She’s Betty Carter<br>
+Sat 29 May 12:10; Mon 7 Jun 18:00<br>
+Sparkle<br>
+Sun 30 May 18:40; Thu 10 Jun 20:35<br>
+Mavis!<br>
+Mon 31 May 16:10; Thu 17 Jun 20:40<br>
+Billie<br>
+Wed 2 Jun 18:00; Tue 15 Jun 20:40<br>
+What’s Love Got to Do with It<br>
+Fri 4 Jun 18:00; Sat 26 Jun 20:45<br>
+Twenty Feet from Stardom<br>
+Fri 4 Jun 20:45; Thu 10 Jun 18:20<br>
+The Wiz<br>
+Sun 6 Jun 12:20; Fri 18 Jun 17:45<br>
+<br>
+Celebrating films starring and directed by Black talent and more<br>
+<br>
+**BECOME A BFI MEMBER** <br>
+Enjoy a great package of film benefits <br>
+including priority booking at BFI Southbank <br>
+and BFI Festivals.<br>
+Join today at [bfi.org.uk/join](bfi.org.uk/join)<br>
