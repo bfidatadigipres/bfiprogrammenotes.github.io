@@ -126,7 +126,6 @@ Night 2:<br>
 ‘Old Landmark’ (End Credits)<br>
 <br>
 **HER VOICE: BLACK WOMEN FROM THE SPOTLIGHT TO THE SCREEN**<br>
-<br>
 Amazing Grace <br>
 Mon 17 May 18:10; Sat 29 May 15:15; Tue 8 Jun 18:10<br><br>
 Whitney: Can I Be Me<br>
@@ -153,9 +152,7 @@ Twenty Feet from Stardom<br>
 Fri 4 Jun 20:45; Thu 10 Jun 18:20<br><br>
 The Wiz<br>
 Sun 6 Jun 12:20; Fri 18 Jun 17:45<br><br>
-<br>
 Celebrating films starring and directed by Black talent and more<br>
-<br>
 **BECOME A BFI MEMBER** <br>
 Enjoy a great package of film benefits including priority booking at BFI Southbank and BFI Festivals.<br>
 Join today at [bfi.org.uk/join](bfi.org.uk/join)<br>
