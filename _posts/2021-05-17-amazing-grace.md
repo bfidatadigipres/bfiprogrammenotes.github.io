@@ -6,8 +6,7 @@ date: 2021-05-17 18:10:00
 categories: ['Her Voice']
 tags: ['HER VOICE: BLACK WOMEN FROM THE SPOTLIGHT TO THE SCREEN']
 ---
-## HER VOICE: BLACK WOMEN FROM THE SPOTLIGHT TO THE SCREEN
-# Amazing Grace  
+### HER VOICE: BLACK WOMEN FROM THE SPOTLIGHT TO THE SCREEN 
 
 The first recorded evidence of Aretha Franklin’s glorious voice was captured in 1956, when she performed a string of gospel numbers in her Baptist minister father’s Detroit church. She was just 14, and the pop stardom she would achieve during her post-1967 tenure with Atlantic Records was still far ahead. Atlantic, though, kept Franklin well away from the gospel genre for several years, while her epochal soul hits shifted units. The calculation was, presumably, that gospel was just a bit too authentic, a bit too black, and unlikely to get airplay on pop radio.  
 
@@ -19,7 +18,7 @@ The headline, though, is that finally the film is out there, though it took Fran
 
 Her voice is a remarkable instrument, but here in service to deeply held faith, both in God and the primacy of gospel as a musical form over rhythm and blues, rock, soul. Even now, after all these years, it’s profoundly moving to witness the occasion, though perhaps with a tinge of regret that a film that would have made history in 1972 emerges in 2019 with the status of historical document, albeit one of powerful intensity.  
 
-**Trevor Johnston, Sight & Sound, June 2019 ** 
+**Trevor Johnston, Sight & Sound, June 2019**  
 
 When Franklin was planning her Amazing Grace album, Warner Brothers agreed to film the session in 1972.  
 
