@@ -4,8 +4,9 @@ title: About
 permalink: /about/
 ---
 
-Programme notes and credits compiled by the **BFI Documentation Unit**
+Programme notes and credits compiled by the BFI Documentation Unit
 
 Notes may be edited or abridged 
 
-**Questions/comments?** Email [prognotes@bfi.org.uk](mailto:prognotes@bfi.org.uk)
+**Questions/comments?** 
+Email [prognotes@bfi.org.uk](mailto:prognotes@bfi.org.uk)
