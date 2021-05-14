@@ -2,9 +2,9 @@
 layout: post
 title: Amazing Grace
 published: true
-date: 2021-05-17 18:10:00
+date: 2021-05-17 17:45:00
 categories: ['Her Voice']
-tags: ['HER VOICE: BLACK WOMEN FROM THE SPOTLIGHT TO THE SCREEN']
+tags: [Music, Documentary]
 ---
 ### HER VOICE: BLACK WOMEN FROM THE SPOTLIGHT TO THE SCREEN 
 
