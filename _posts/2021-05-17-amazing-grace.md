@@ -157,7 +157,5 @@ Sun 6 Jun 12:20; Fri 18 Jun 17:45<br>
 Celebrating films starring and directed by Black talent and more<br>
 <br>
 **BECOME A BFI MEMBER** <br>
-Enjoy a great package of film benefits <br>
-including priority booking at BFI Southbank <br>
-and BFI Festivals.<br>
+Enjoy a great package of film benefits including priority booking at BFI Southbank and BFI Festivals.<br>
 Join today at [bfi.org.uk/join](bfi.org.uk/join)<br>
