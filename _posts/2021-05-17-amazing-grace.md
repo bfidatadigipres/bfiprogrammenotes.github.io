@@ -37,7 +37,7 @@ Forty-seven years later, this film is a testimony to the greatness of Aretha Fra
 
 **Production notes (with thanks to Neon)**
 
-**[Credits](https://www2.bfi.org.uk/films-tv-people/5ce28f525419a)**
+**[Credits](https://www2.bfi.org.uk/films-tv-people/5ce28f525419a)**<br>
 Amazing Grace, USA 2019, 88 mins<br>
 Realised and Produced by: Alan Elliott  
 \[Concert footage directed by\]: Sydney Pollack  
