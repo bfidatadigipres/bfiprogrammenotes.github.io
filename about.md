@@ -4,12 +4,8 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+Programme notes and credits compiled by the **BFI Documentation Unit**
 
-### More Information
+Notes may be edited or abridged 
 
-A place to include any other types of information that you'd like to include about yourself.
-
-### Contact me
-
-[email@domain.com](mailto:email@domain.com)
+**Questions/comments?** Email [prognotes@domain.com](mailto:prognotes@bfi.org.uk)
