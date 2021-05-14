@@ -37,9 +37,10 @@ Forty-seven years later, this film is a testimony to the greatness of Aretha Fra
 
 **Production notes (with thanks to Neon)**
 
-**Credits** - see [BFI website](https://www2.bfi.org.uk/films-tv-people/5ce28f525419a) for more information  
+**[Credits](https://www2.bfi.org.uk/films-tv-people/5ce28f525419a)**
+Amazing Grace, USA 2019, 88 mins<br>
 Realised and Produced by: Alan Elliott  
-[Concert footage directed by]: Sydney Pollack  
+\[Concert footage directed by\]: Sydney Pollack  
 Presented by: Neon  
 Produced in association with: Sundial Pictures  
 Executive Producers: Stefan Nowicki, Joey Carey, Alexandra Johnes  
@@ -103,8 +104,6 @@ Annette May Thomas<br>
 Bobby Washington<br>
 Aundie Wodson<br>
 Barbara Ann Wilson<br>
-**USA 2019<br>
-88 mins**<br>
 <br>
 **The Film Song List**<br>
 Night 1:<br>
@@ -126,33 +125,33 @@ Night 2:<br>
 ‘Old Landmark’ (End Credits)<br>
 <br>
 **HER VOICE: BLACK WOMEN FROM THE SPOTLIGHT TO THE SCREEN**<br>
-Amazing Grace <br>
+**Amazing Grace**<br>
 Mon 17 May 18:10; Sat 29 May 15:15; Tue 8 Jun 18:10<br><br>
-Whitney: Can I Be Me<br>
+**Whitney: Can I Be Me**<br>
 Tue 18 May 20:50; Sat 26 Jun 18:10<br><br>
-Siren of the Tropics (La sirène des tropiques)<br>
+**Siren of the Tropics (La sirène des tropiques)**<br>
 Wed 19 May 18:10; Sat 5 Jun 12:20<br><br>
-Stormy Weather<br>
+**Stormy Weather**<br>
 Wed 19 May 20:40; Sat 5 Jun 16:00<br><br>
-Dreamgirls<br>
+**Dreamgirls**<br>
 Sat 22 May 17:50; Wed 23 Jun 20:30<br><br>
-Ella Fitzgerald: Just One of Those Things<br>
+**Ella Fitzgerald: Just One of Those Things**<br>
 Mon 24 May 18:10; Sat 19 Jun 15:20<br><br>
-…But Then, She’s Betty Carter<br>
+**…But Then, She’s Betty Carter**<br>
 Sat 29 May 12:10; Mon 7 Jun 18:00<br><br>
-Sparkle<br>
+**Sparkle**<br>
 Sun 30 May 18:40; Thu 10 Jun 20:35<br><br>
-Mavis!<br>
+**Mavis!**<br>
 Mon 31 May 16:10; Thu 17 Jun 20:40<br><br>
-Billie<br>
+**Billie**<br>
 Wed 2 Jun 18:00; Tue 15 Jun 20:40<br><br>
-What’s Love Got to Do with It<br>
+**What’s Love Got to Do with It**<br>
 Fri 4 Jun 18:00; Sat 26 Jun 20:45<br><br>
-Twenty Feet from Stardom<br>
+**Twenty Feet from Stardom**<br>
 Fri 4 Jun 20:45; Thu 10 Jun 18:20<br><br>
-The Wiz<br>
+**The Wiz**<br>
 Sun 6 Jun 12:20; Fri 18 Jun 17:45<br><br>
-Celebrating films starring and directed by Black talent and more<br>
+Celebrating films starring and directed by Black talent and more<br><br>
 **BECOME A BFI MEMBER** <br>
 Enjoy a great package of film benefits including priority booking at BFI Southbank and BFI Festivals.<br>
 Join today at [bfi.org.uk/join](bfi.org.uk/join)<br>
