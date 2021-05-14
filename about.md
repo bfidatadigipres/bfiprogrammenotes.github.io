@@ -8,4 +8,4 @@ Programme notes and credits compiled by the **BFI Documentation Unit**
 
 Notes may be edited or abridged 
 
-**Questions/comments?** Email [prognotes@domain.com](mailto:prognotes@bfi.org.uk)
+**Questions/comments?** Email [prognotes@bfi.org.uk](mailto:prognotes@bfi.org.uk)
